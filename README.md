@@ -10,10 +10,11 @@ A Little Dolly proporciona momentos nostálgicos e eufóricos ao público durant
 - [**Visite nosso site**](https://littledolly.com.br)
 
 ## Contato
-- **E-mail:** contato@littledolly.com.br 📧
+- [**Visite nossa lista de contato**](https://littledolly.com.br/contato)
 
 ## Redes Sociais
 Siga-nos no Instagram para ficar por dentro das últimas novidades e atualizações:
-- [**Instagram**](https://www.instagram.com/littledollybanda) 📷
+- [**Instagram**](https://www.instagram.com/littledollybanda)
+- [**Tiktok**](https://www.tiktok.com/@littledollybanda)
 
 Agradecemos por seu apoio e esperamos vê-lo em um de nossos shows em breve! 🤟🎉
